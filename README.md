@@ -1,1 +1,3 @@
-# .github
+# *When There Seems No Way, God Will Make a Way: Uplifting Truths to Hold Onto*
+# *Life often leads us into moments where the way forward is unclear. Doors close unexpectedly, plans fall apart, and uncertainty looms large. But in those dark hours, there's a timeless truth that brings hope: “God will make a way when there seems no way.”*
+# *This powerful promise reminds us that even in our most impossible situations, divine intervention is possible. Be uplifted, inspired, and filled with divine hope.* [More details…](https://spiritualkhazaana.com/web-stories/when-there-seems-no-way-god-will-make-a-way/)
